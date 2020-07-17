@@ -1,3 +1,3 @@
-# Welcome to my blog
+# SummerRain Blog - Life and Light
 
-I'm glad you are here. I plan to talk about ...
+Welcome and I hope you enjoy my personal journey of life Pre and Post Corona Virus 
